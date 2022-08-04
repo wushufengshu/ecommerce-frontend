@@ -1,1 +1,1 @@
-me just practicing new cool thingz..
+me just practicing new kewl thingz..
